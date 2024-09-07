@@ -1,4 +1,4 @@
-## Aplicativos TOP para Devs: Seu Guia Completo! 
+## Aplicativos TOP para Devs: Seu Guia Completo! - Imersão Alura Dev com Google Gemini
 
 **Já cansou de perder tempo procurando aquela ferramenta perfeita?** 
 
